@@ -1,8 +1,3 @@
 # Hello-world
-tutorial
-bdsfjsdhafahaiwehwefsflasd
-fjndafkasdjfnwhwefhsd
-fnsdafnasfnajewuhsdsaf
-ajfasnfisbiuwfbaasdfas
-fsdjfaiusfbuaifbsda
-fnsdfnsafnsafh
+Julio André Rojas Ríos
+Bachiller en Meteorología
